@@ -32,5 +32,13 @@ http://yorixiriamori.lhmtv.gq/futuro/-RORS9bvIN6U/XTjENAxJQsI/AAAAAAAAHvY/9Nb7i5
 #EXTINF:-1, Jumbo
 http://yorixiriamori.lhmtv.gq/futuro/-SMKoUItKaSM/XQ6Ya2VVDFI/AAAAAAAAHMQ/ZyAcnB8mdiAY2oQWtvLGSZMqoktEBVQvwCKgBGAs/m22/Jumbo.2019.720p.BluRay.x264-DUBLADO.mp4
 
+#EXTINF:-1, O Auto da Compadecida
+https://unick-forex.org/v/plnmgsm48y4pkkx
 
+#EXTINF:-1, O Auto da Compadecida
+https://unick-forex.org/v/plnmgsm48y4pkkx?jwsource=cl
 
+#EXTINF:-1, Crônicas de Natal
+https://861520442.tapecontent.net/radosgw/zppkLdkpzPCvJV/WUMDy5Po0U0tq1FH00L4ZmwGSaqE3EA4-L3iILSBCLHADd3MtQjOsQ1dWPjzuV9XQVkpDrAHNPfK0MmSapWSighSVB1KlnPj15FwLg9O6Oaf9nou2_xjgswL1LCXynDKkh0DIwPQde4SyT_lveKhU1LIHokhMP6Btv_BtkOcwxGE6GcwwLzUenHMjamq0RY5S7AHBL8HqC_vNSMjY15ssY29eMm64Aemyg2q5WUkrePCvRSLHkijonVbgtzRCgtovDxonxoiyAJZTjSYUTu3qv9lTXGE2puXZhMcV45E2vMx-8-uftrTTAQ9qMFpxOU8yQzrOCKsUqfDKMkWtuZw9oHH9d2gIbuPvR67WA/Cronicas.de.Natal.Parte.Dois.2020.1080p.WEBRip.x264.DUAL.COMANDO.TO.mkv.mp4?stream=1
+#EXTINF:-1, Ilha da Fantasia
+https://908357485.tapecontent.net/radosgw/PqYzRLXPlDU0a42/jbH5uJTen8H6lT9egOGfejWlM7eMNkp_LTiVAmdglvtTuhb9tdyef4PGQb2pY2MyCQnGnWNp5PTFH9RA8xpfIWXi7XXnuvmHyhEratZOe4EmMprZiRFU4UXt4Fzy0ShXDVfJGBqQ36eHHIDEMcs-98AO5EbYFXBAhwI4V0X2JMWeGr6Z9WVjquuCzl4_hOKbPe-9f5Z0RsQIlr5QHFu46WvVKl0FEcq8-wcKTFsqrnOH8bwWuRZo_a1xFwOXKkmJhhzsqxm58OIIFzcgb0usRs7atna62eq6RugVjQ/Ilha.da.Fantasia.2020.720p.mp4?stream=1
